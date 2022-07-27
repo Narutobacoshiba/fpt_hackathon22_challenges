@@ -1,0 +1,1 @@
+# fpt_hackathon22_challenges
